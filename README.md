@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Koumicm
+- 👀 I’m interested in musics,fnaf,ddlc,developing and video games.
+- 🌱 I’m currently learning developping and webhooks!
+- 🌼 I'm doing with my bestfriend a serie on gacha club called "Alexya's arcade"
+- 🐑 We have a channel called "sanario"
+- 🥭 We also have a discord server for the serie.
+- 😬 that's basically all!
